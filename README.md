@@ -25,6 +25,13 @@ Me sube, me sube, me sube y me sube
 Ay, ay ay
 Sube la bolita y sube la bolita
 Ay, ay ay
+Banana sweet (banana) 
+Banana nice (banana) 
+Banana beat (banana) 
+Banana long (banana) 
+Banana nice (banana) 
+Banana sweet (banana
 
 Ay, ay ay (yo no quería esta rola >:( )
+
 
