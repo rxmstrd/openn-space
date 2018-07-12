@@ -1,4 +1,10 @@
 
+Hermoso huipil llevabas, llorona
+Que la virgen te creí
+Hermoso hipil llevabas, llorona
+Que la virgen te creí
+=======
+
 Salías del templo un día, llorona
 Cuando al pasar yo te ví
 Salías del templo un día, llorona
