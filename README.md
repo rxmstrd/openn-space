@@ -1,6 +1,4 @@
 ### Este es el Readme de prueba
-
-
 In the island of Jamaica Everybody loves banana
 
 Mexicana like it (banana) Hot, hot (banana)
@@ -28,6 +26,5 @@ Ay, ay ay
 Sube la bolita y sube la bolita
 Ay, ay ay
 
-
-
+Ay, ay ay (yo no quería esta rola >:( )
 
