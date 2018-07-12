@@ -12,10 +12,12 @@ Into the light of the dark black night
 Blackbird fly, blackbird fly
 Into the light of the dark black night
 
+
 Blackbird singing in the dead of night
 Take these broken wings and learn to fly
 All your life
 You were only waiting for this moment to arise
 You were only waiting for this moment to arise
 You were only waiting for this moment to arise
+
 
