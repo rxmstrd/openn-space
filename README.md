@@ -1,3 +1,9 @@
+
+Salías del templo un día, llorona
+Cuando al pasar yo te ví
+Salías del templo un día, llorona
+Cuando al pasar yo te ví
+=======
 Me quitaran de quererte, llorona
 pero de olvidarte nunca
 =======
